@@ -1,5 +1,4 @@
 ![10001 (1)](https://github.com/user-attachments/assets/80fb7ea9-3293-482d-a189-4f62abc54da1)
-![10004](https://github.com/user-attachments/assets/8db861d4-e698-45aa-9887-20d6a2acaec7)
 ![10004 (2)](https://github.com/user-attachments/assets/57d11277-be83-4a53-a797-c3805d4d307a)
 ![10004 (1)](https://github.com/user-attachments/assets/3f0b2962-886a-4cd4-b2ba-140c149c7cfc)
 ![10003](https://github.com/user-attachments/assets/ce4f4c77-da1c-4c30-a575-486edee72c7f)
