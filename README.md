@@ -1,5 +1,5 @@
 # 专辑目录
-## 安然
+## [安然Anran](https://github.com/whaogx/Image/tree/main/%E5%AE%89%E7%84%B6Anran)
 > - **<h3>[NO.9506](https://github.com/whaogx/Image/blob/main/%E5%AE%89%E7%84%B6Anran/No.9506.md)</h3>**
 >- **<h3>[NO.9399](https://github.com/whaogx/Image/blob/main/%E5%AE%89%E7%84%B6Anran/No.9399.md)</h3>**
 >- **<h3>[NO.9362](https://github.com/whaogx/Image/blob/main/%E5%AE%89%E7%84%B6Anran/No.9362.md)</h3>**
