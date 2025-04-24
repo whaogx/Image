@@ -52,3 +52,7 @@
 ![20250417_013820](https://github.com/user-attachments/assets/477d3e7d-f699-487b-8c0a-ef5ee15ec9f9)
 ![20250420_093218](https://github.com/user-attachments/assets/19d9bcee-49b8-462e-a239-fed6b514f43e)
 ![www javbus com_2oFIdcb](https://github.com/user-attachments/assets/0babdf8a-cf88-40a7-b014-c2c5c6d42f55)
+![20250424_123806](https://github.com/user-attachments/assets/c0bd5b3f-2b92-4600-919c-884f68a6f4ec)
+![20250424_123544](https://github.com/user-attachments/assets/2c86f879-27fd-45f5-996a-61627fa70844)
+![20250424_123719](https://github.com/user-attachments/assets/f8378df3-659b-4678-86f6-1ad1cea24124)
+![20250424_010520](https://github.com/user-attachments/assets/6b7ca25e-5171-4946-a7bf-5edc1212ceb6)
