@@ -2,6 +2,9 @@
 ## [安然Anran](https://github.com/whaogx/Image/tree/main/%E5%AE%89%E7%84%B6Anran)
 <details>
 
+>- **<h3>[NO.10272](安然Anran/No.10272.md)</h3>**
+>- **<h3>[NO.10214](安然Anran/No.10214.md)</h3>**
+>- **<h3>[NO.10183](安然Anran/No.10183.md)</h3>**
 >- **<h3>[NO.9842](安然Anran/No.9842.md)</h3>**
 >- **<h3>[NO.9821](安然Anran/No.9821.md)</h3>**
 >- **<h3>[NO.9794](安然Anran/No.9794.md)</h3>**
