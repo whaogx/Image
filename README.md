@@ -72,8 +72,9 @@
 ## [shelly 诗莉吖](https://github.com/whaogx/Image/tree/main/shelly%20%E8%AF%97%E8%8E%89%E5%90%96)
 <details>
 
->- **<h3>[NO.10339](shelly 诗莉吖/No.10339.md)</h3>**
->- **<h3>[NO.10316](shelly 诗莉吖/No.10316.md)</h3>**
->- **<h3>[NO.10264](shelly 诗莉吖/No.10264.md)</h3>**
->- **<h3>[NO.10234](shelly 诗莉吖/No.10234.md)</h3>**
+>- **<h3>[NO.10368](诗莉吖shelly/No.10368.md)</h3>**
+>- **<h3>[NO.10339](诗莉吖shelly/No.10339.md)</h3>**
+>- **<h3>[NO.10316](诗莉吖shelly/No.10316.md)</h3>**
+>- **<h3>[NO.10264](诗莉吖shelly/No.10264.md)</h3>**
+>- **<h3>[NO.10234](诗莉吖shelly/No.10234.md)</h3>**
 </details>
