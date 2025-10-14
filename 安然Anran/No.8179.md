@@ -1,3 +1,5 @@
+## [上一专辑：No.8145](安然Anran/No.8145.md)
+## [下一专辑：No.8217](安然Anran/No.8217.md)
 ![10005](https://github.com/user-attachments/assets/a85f790b-e9c1-4d0c-ad28-c4f0caace346)
 ![10004](https://github.com/user-attachments/assets/576db5dc-a797-46d5-9577-ad6ad871a457)
 ![10004 (1)](https://github.com/user-attachments/assets/a90fd9c7-5841-4d06-bd2a-350e18f3c8e6)
@@ -8,5 +10,5 @@
 ![10001](https://github.com/user-attachments/assets/680693b7-cd30-486d-b1f6-3d5a3526c3d6)
 ![10001 (2)](https://github.com/user-attachments/assets/0484cecf-6c30-462a-add4-211a4c6ff513)
 ![10001 (1)](https://github.com/user-attachments/assets/808c0e17-2dc7-4e46-a4b9-9b7a35b0b6c7)
-
-# <h2 align="center">[返回目录页](https://github.com/whaogx/Image/)</h2>
+## [上一专辑：No.8145](安然Anran/No.8145.md)
+## [下一专辑：No.8217](安然Anran/No.8217.md)
