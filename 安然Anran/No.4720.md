@@ -1,4 +1,5 @@
->- **<h3>[下一专辑 NO.4791](安然Anran/No.4791.md)</h3>**
+## [上一专辑：No.10747](https://github.com/whaogx/Image/blob/main/%E5%AE%89%E7%84%B6Anran/No.10747.md)
+## [下一专辑：No.4791](https://github.com/whaogx/Image/blob/main/%E5%AE%89%E7%84%B6Anran/No.4791.md)
 ![10005](https://github.com/user-attachments/assets/fc269c96-b4dd-42a8-8073-55805ddaf0d3)
 ![10004](https://github.com/user-attachments/assets/c8c0d788-eea0-46c8-951e-692b430fb952)
 ![10004 (1)](https://github.com/user-attachments/assets/6cda5871-6950-43bd-b921-f6c47b36fab8)
@@ -8,5 +9,5 @@
 ![10002 (1)](https://github.com/user-attachments/assets/3b5d967c-324b-4f8e-8191-483720275b14)
 ![10001](https://github.com/user-attachments/assets/8b84a19e-0437-4c53-b331-71ba3ba1824b)
 ![10001 (1)](https://github.com/user-attachments/assets/a1434e8c-3582-434c-be7d-c43720836c12)
-
->- **<h3>[下一专辑 NO.4791](安然Anran/No.4791.md)</h3>**
+## [上一专辑：No.10747](https://github.com/whaogx/Image/blob/main/%E5%AE%89%E7%84%B6Anran/No.10747.md)
+## [下一专辑：No.4791](https://github.com/whaogx/Image/blob/main/%E5%AE%89%E7%84%B6Anran/No.4791.md)
