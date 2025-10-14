@@ -1,4 +1,4 @@
-## [上一专辑：No.10641](安然Anran/No.10641.md)
+## [上一专辑：No.10641](https://github.com/whaogx/Image/edit/main/%E5%AE%89%E7%84%B6Anran/No.10668.md)
 ## [下一专辑：No.10747](安然Anran/No.10747.md)
 ![10007](https://github.com/user-attachments/assets/c6d815f3-1caf-4d0c-8496-02949f153ffe)
 ![10007 (1)](https://github.com/user-attachments/assets/ee238c85-87e8-498c-a2cb-cc49261c199a)
