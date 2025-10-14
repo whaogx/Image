@@ -1,3 +1,5 @@
+## [上一专辑：No.8332](安然Anran/No.8332.md)
+## [下一专辑：No.8577](安然Anran/No.8577.md)
 ![No 8362_08](https://github.com/user-attachments/assets/62ee5888-d9da-4079-985e-377b0552fb7c)
 ![No 8362_07](https://github.com/user-attachments/assets/b555fe1f-82d9-41fb-89bc-e5890e479342)
 ![No 8362_06](https://github.com/user-attachments/assets/4aa77e2e-b1cb-496c-91cd-ef4908a48d93)
@@ -6,4 +8,5 @@
 ![No 8362_03](https://github.com/user-attachments/assets/a5202e28-fbee-41dd-85fe-fb6e7e6caab1)
 ![No 8362_02](https://github.com/user-attachments/assets/d2bf21ce-7770-4d91-b084-9b11e6e680cc)
 ![No 8362_01](https://github.com/user-attachments/assets/e775ef17-92b7-4c74-b0d3-c64cf7b821cb)
-# <h2 align="center">[返回目录页](https://github.com/whaogx/Image/)</h2>
+## [上一专辑：No.8332](安然Anran/No.8332.md)
+## [下一专辑：No.8577](安然Anran/No.8577.md)
