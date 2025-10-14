@@ -1,3 +1,5 @@
+## [上一专辑：No.7765](安然Anran/No.7765.md)
+## [下一专辑：No.7831](安然Anran/No.7831.md)
 ![10006](https://github.com/user-attachments/assets/b912acda-10e6-4266-9bb6-e9f9820a4968)
 ![10005](https://github.com/user-attachments/assets/f57a2efa-5727-4610-ac8f-0ba60cc74926)
 ![10004](https://github.com/user-attachments/assets/c8c56538-b098-4705-a67d-0e07ad2c112d)
@@ -12,5 +14,5 @@
 ![10001](https://github.com/user-attachments/assets/ad2f5a77-58e1-4183-a4cd-63433bfc9ad1)
 ![10001 (2)](https://github.com/user-attachments/assets/c846224c-18d6-4b13-b9f9-5358995dd81a)
 ![10001 (1)](https://github.com/user-attachments/assets/49503397-de24-43ee-bf02-9d653cf218a4)
-
-# <h2 align="center">[返回目录页](https://github.com/whaogx/Image/)</h2>
+## [上一专辑：No.7765](安然Anran/No.7765.md)
+## [下一专辑：No.7831](安然Anran/No.7831.md)
