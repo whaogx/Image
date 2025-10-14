@@ -1,3 +1,5 @@
+## [上一专辑：No.8829](安然Anran/No.8829.md)
+## [下一专辑：No.9041](安然Anran/No.9041.md)
 ![10006](https://github.com/user-attachments/assets/8413bb59-0916-4c5d-a752-f1b37dd1349f)
 ![10005](https://github.com/user-attachments/assets/5587e14f-c183-4b9c-81fb-e36a88fbb1dc)
 ![10005 (1)](https://github.com/user-attachments/assets/857a691f-789b-43d3-94d2-f92fd9df391a)
@@ -8,4 +10,5 @@
 ![10002 (1)](https://github.com/user-attachments/assets/9a9ef4e7-60ab-4826-9d1b-fc01af12ca4e)
 ![10001](https://github.com/user-attachments/assets/c288695c-2686-491e-b9b1-73efed0a3cf7)
 ![10001 (1)](https://github.com/user-attachments/assets/cc980654-dfdb-4ec7-983e-4da9f479058c)
-# <h2 align="center">[返回目录页](https://github.com/whaogx/Image/)</h2>
+## [上一专辑：No.8829](安然Anran/No.8829.md)
+## [下一专辑：No.9041](安然Anran/No.9041.md)
