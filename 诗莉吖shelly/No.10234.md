@@ -1,4 +1,6 @@
-https://github.com/whaogx/Image/blob/main/%E8%AF%97%E8%8E%89%E5%90%96shelly/No.10368.md
+## [上一专辑：No.10234](https://github.com/whaogx/Image/blob/main/%E8%AF%97%E8%8E%89%E5%90%96shelly/No.10234.md)
+## [下一专辑：No.10264](https://github.com/whaogx/Image/blob/main/%E8%AF%97%E8%8E%89%E5%90%96shelly/No.10264.md)
+
 ![10007 (1)](https://github.com/user-attachments/assets/09c84c79-ea99-49d6-83bc-7b39f003a909)
 ![10006](https://github.com/user-attachments/assets/d20217cd-12ac-46a3-99e1-e05ddcb5f02a)
 ![10006 (1)](https://github.com/user-attachments/assets/3d6315b6-e27c-48cf-8c9a-6fdb6c5b5af1)
@@ -17,3 +19,5 @@ https://github.com/whaogx/Image/blob/main/%E8%AF%97%E8%8E%89%E5%90%96shelly/No.1
 ![10001 (3)](https://github.com/user-attachments/assets/f9fbab5f-e63e-4230-a4b6-4a90e757a603)
 ![10001 (2)](https://github.com/user-attachments/assets/99747b85-5b9b-4bde-955f-18488a5ae6a7)
 ![10001 (1)](https://github.com/user-attachments/assets/d94a7131-a26e-453b-a99a-07ea6aeb979c)
+## [上一专辑：No.10234](https://github.com/whaogx/Image/blob/main/%E8%AF%97%E8%8E%89%E5%90%96shelly/No.10234.md)
+## [下一专辑：No.10264](https://github.com/whaogx/Image/blob/main/%E8%AF%97%E8%8E%89%E5%90%96shelly/No.10264.md)
