@@ -1,3 +1,5 @@
+## [上一专辑：No.7147](https://github.com/whaogx/Image/edit/main/%E6%9E%97%E6%98%9F%E9%98%91/No.7147.md)
+## [下一专辑：No.7605](https://github.com/whaogx/Image/edit/main/%E6%9E%97%E6%98%9F%E9%98%91/No.7605.md)
 ![10009](https://github.com/user-attachments/assets/723807b4-84cd-4b0e-8ada-8924560ff522)
 ![10008](https://github.com/user-attachments/assets/105e7073-149a-488c-b597-b8d7dca9c3e4)
 ![10007](https://github.com/user-attachments/assets/a757d017-56be-456f-a2c0-3c03c00c1a5d)
@@ -7,5 +9,5 @@
 ![10003](https://github.com/user-attachments/assets/368273fa-f84c-41fe-9f76-4a9b7ce7d867)
 ![10002](https://github.com/user-attachments/assets/2316936d-a263-426d-bdbe-f2c6bd89b4bc)
 ![10001](https://github.com/user-attachments/assets/03ed81bf-4891-40ce-8c8b-3855b1fb50e8)
-
-# <h2 align="center">[返回目录页](https://github.com/whaogx/Image/)</h2>
+## [上一专辑：No.7147](https://github.com/whaogx/Image/edit/main/%E6%9E%97%E6%98%9F%E9%98%91/No.7147.md)
+## [下一专辑：No.7605](https://github.com/whaogx/Image/edit/main/%E6%9E%97%E6%98%9F%E9%98%91/No.7605.md)
